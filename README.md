@@ -1,1 +1,1 @@
-# rizstore.com
+# purizastore.com
